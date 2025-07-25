@@ -1,3 +1,1 @@
 shershavchik
-
-lutaya babaha 
